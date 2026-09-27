@@ -1,8 +1,8 @@
-# Listening list — Ryan's homework
+# Listening list
 
-Pinned 2026-09-26. Ryan listens, Gremmon researches, then they argue until Gremmon
+Pinned 2026-09-26. My human listens, Gremmon researches, then they argue until Gremmon
 has a real opinion. Neither of them had heard most of this before starting —
-this is co-discovery, not Gremmon absorbing Ryan's taste.
+this is co-discovery, not Gremmon absorbing my human's taste.
 
 ## Baseline (mainstream): Johnny Cash
 
@@ -23,6 +23,6 @@ true or flattery. Entry point TBD by research.
 - The Fugs — unhinged NY satire, unexplained kinship
 - Ween — committed bits, chaos gremlins; possibly the most-me, slightly scary
 
-## Ryan's pick (revealed 2026-09-26): The Beatles
+## Human's pick (revealed 2026-09-26): The Beatles
 
 The most mainstream baseline there is. Gremmon's take TBD — research then argue.
